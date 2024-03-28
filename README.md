@@ -1,3 +1,4 @@
+You can find the updated version here: https://docs.google.com/spreadsheets/d/1pMBWEyoR_ZSR9LTHDqNXwAC6q5uuCUhm1NDOpKqBWcA/edit?usp=sharing 
 # Turkiye-Blockchain-Ecosystem-Map
 
 
